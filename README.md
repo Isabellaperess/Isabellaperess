@@ -3,7 +3,4 @@
 
 
 
-
-
-
-![](https://tenor.com/pt-BR/view/cat-gif-7477625725747069170)
+![](https://tenor.com/bgk5glPKqlx.gif)
